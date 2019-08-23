@@ -31,8 +31,8 @@ panjang: 6 meter
 Rangka atap baja ringan memiliki beragam kelebihan seperti:
 
 - Konstruksi lebih ringan, tahan lama dan bebas biaya perawatan
-- Tidak digerogoti oleh rayap dan juga tidak lapuk karena jamur
+- Tidak digerogoti oleh rayap dan juga tidak lapuk karena kelembaban dan jamur
 - Tahan api dan tidak terbakar pada saat terjadi kebakaran
 - Dengan perhitungan dimensi yang tepat, pemasangan atap baja ringan akan lebih kuat, mudah dan cepat.
 
-Dengan beragam kelebihan tersebut, baja ringan sangat baik untuk digunakan untuk proyek konstruksi rangka atap, namun material ini juga memerlukan tukang yang berpengalaman agar pemasangan atap baja ringan memberikan hasil yang presisi dan baik.
+Dengan beragam kelebihan tersebut, baja ringan sangat baik untuk digunakan untuk proyek konstruksi rangka atap, namun material ini juga memerlukan tukang yang ahli dan telah berpengalaman agar pemasangan atap baja ringan memberikan hasil yang presisi dan baik. Pemasangan dengan perhitungan yang tidak tepat akan menghasilkan instalasi atap baja ringan yang tidak enak dipandang atau yang lebih parah lagi, konstruksi yang dihasilkan tidak kuat.
