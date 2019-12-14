@@ -24,15 +24,15 @@ Untuk membantu anda mencari bahan rangka atap baja ringan terbaik untuk rumah an
 
 Untuk anda yang masih ragu untuk menggunakan atap baja ringan sebagai struktur atap pada bangunan anda, silahkan simak beberapa kelebihan atap baja ringan di bawah ini, mungkin anda dapat berubah pikiran.
 
-1. Waktu Pemasangan Atap Baja Ringan Relatif Cepat
+**1. Waktu Pemasangan Atap Baja Ringan Relatif Cepat**
 
 Produk atap baja ringan didesain untuk dapat mudah disambung satu dengan yang lainnya menggunakan baut, mur atau pengelasan. Baja ringan juga diproduksi menggunakan mesin dengan presisi yang baik dan dijual dalam kondisi siap pakai, tidak seperti material kayu. Baja ringan tipe profil C biasanya digunakan untuk kerangka utama, sedangkan baja ringan tipe profil U digunakan sebagai reng, jadi tukang tidak perlu lagi membuat kasau dan gording. Walaupun disebut baja, material atap baja ringan tidak se-berat baja konvensional, hal-hal tersebut menjadikan waktu instalasi rangka atap baja ringan relatif cepat.
 
-2. Struktur Atap Baja Ringan Kuat Dan Tahan Tarikan/Geseran
+**2. Struktur Atap Baja Ringan Kuat Dan Tahan Tarikan/Geseran**
 
 Pada saat terjadi gempa bumi maupun angin kencang, rangka atap baja ringan dapat menahan tekanan atau tarikan yang cukup kuat. Karena sifat daktilitasnya yang tinggi, apabila terjadi hentakan kuat tiba-tiba, rangka atap baja ringan relatif lebih kuat dibandingkan dengan rangka atap kayu.
 
-3. Lebih Ramah Lingkungan
+**3. Lebih Ramah Lingkungan**
 
 Alasan utama beralihnya minat masyarakat dalam penggunaan rangka atap kayu adalah karena rangka atap baja ringan lebih ramah lingkungan dibandingkan dengan menggunakan rangka atap kayu. Dengan berkurangnya pemakaian kayu sebagai material konstruksi rangka atap rumah, otomatis penebangan hutan menjadi lebih berkurang sehingga berdampak baik bagi pelestarian hutan untuk kehidupan manusia bersama.
 
